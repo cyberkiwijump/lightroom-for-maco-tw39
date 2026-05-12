@@ -1,4 +1,4 @@
-# 
+# premium CapCut for macOS Automation | auto-enhance + HDR-editing offers the most advanced CapCut for macOS automation, with auto-enhance and HDR-editing. Ideal for macOS
 
 
 
